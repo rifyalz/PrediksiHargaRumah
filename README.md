@@ -1,2 +1,0 @@
-# PrediksiHargaRumah
-Prediksi Harga Rumah
